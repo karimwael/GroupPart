@@ -25,6 +25,8 @@ Meray Samy 37-1012
 
 Meray Samy " Bipolarity is beautiful, but I hate it"
 
+Youssef Mostafa Anany "Bipolarity is not good, but I like it"
+
 
 Oreo1234567
 he7
