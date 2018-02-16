@@ -22,8 +22,8 @@ Youssef Mostafa Anany 37-9163
 Meray Samy 37-1012
 
 ### About
-
-Meray Samy " Bipolarity is beautiful, but I hate it"
+it
+Meray Samy "My zodiac sign is Gemini"
 
 Youssef Mostafa Anany "Bipolarity is not good, but I like it"
 
